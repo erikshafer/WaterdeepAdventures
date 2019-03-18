@@ -8,7 +8,7 @@ This is a repository that will host notes written down from JT's D&D campaign se
 |Character Name|IRL Name|
 |-|-|
 |Ricard DuPont|Ryan|
-|Garkus Dragonbreaker|Sean|
+|Garkus Dragonbreaker|Shawn|
 |Professor Pinoah Scheppen|Brie|
 |Remy Boureaux|Dan|
 |Zarrius Felstad|Erik|
@@ -81,8 +81,41 @@ Kenku has a bleeding arm and runs down.
 
 Individuals in black leather that are dead. There are seven other thugs that are dead. THere are a set of stairs that go up to the second level. THere boxes.
 
-**Renaer Neverember** is the son of the former Open Lord. Floon and Renaer were captured, but Floon was taken and then Renaer hid. They were trying to get Renaer though given his status. Renaer has not seen his father since he went to Neverwinter. 
+**Renaer Neverember** is the son of the former Open Lord. Floon and Renaer were captured, but Floon was taken and then Renaer hid. They were trying to get Renaer though given his status. Renaer has not seen his father since he went to Neverwinter.
 
 The Zhentarim think that Renaer's father embezzeled a large amount of money while he was open lord of Waterdeep. And that he hid millions of dragons in the city. They think they can find it by using an artifact *the Stone of Galore*, which was in the hands of the *Xanathar Guild*. Someone apparently stole it. The Xanathar have their roots below the city in the sewers.
 
 Just then, a loud pounding noise emits from the City Watch. 
+
+# Session Two
+
+*Slight reminders*: Stone of Galore was in posession of the Xanathar, but they lost it a some point. The Xanathar accidently took Floon instead, since he looks like .  Xanathar think that Renaer's fathers embezzeled a bunch of gold. 
+
+Human man, slender, well kept gray mustache. Dressed in the traditional guard, green with metal helmet. Eyes the room in a non-paniced manner. Brie and Ryan's characters (Professor and Ricard) hide as they enter.
+
+-6 Dragons
+
+Go downwards past the ally, to the left, and the sewer cover. 
+
+Garkus
+Zarrius
+Remy
+Professor
+Ricar
+
+Tiny symbol on the wallet. Ten spoks. When Ricard lights his torch, you can see it's yellow. 
+There's two directions. We follow the one that has the symbol.
+
+Reach another fork. This goes on and on for about an hour. After we go up. 
+
+We encounter a small Beholder. It shoots a beam at Garkus, that had the energy to throw Garkus to the ceiling and then drop him. It shoots Zarrius but he dodges. Zarrius then charges the arcane creature, using his hexblade curse, and scores a critical hit, killing the creature outright.
+
+A ladder is found and Remy checks it out. The party follows. The party hears two voices. One says, "Did you hear something?" Remy takes a puff from his joint and casts *Fog*.
+
+Remy hears the door open, and then the sound of a young woman. "What the hell?" Remy says, "Ain't no one here." The woman then starts swinging her legs and arms, and hits Remy whom then goes back the ladder. She slides something over the cover.
+
+Go down a tunnel which opens up. Find arrow slits in a hub area. Garkus goes foward and doesn't trigger any traps. Garkus hears some minor talking in a language he doesn't understand.
+
+...
+
+*to be updated*
